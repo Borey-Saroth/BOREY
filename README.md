@@ -1,2 +1,2 @@
 # BOREY
-Hi guy are welcome 
+Hi guy you are welcome 
